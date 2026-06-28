@@ -1,7 +1,11 @@
+# Intro (53 mots - 20")
+
 En 2023, pour tes 30 ans, nous étions pionniers dans le discours augmenté par IA.
 Maintenant que c'est devenu has-been, nous sommes à nouveau en pointe en garantissant
 un discours 100% humain. Et comme nous faisons aussi dans l'éco-conscient, nous
 y avons inclus une part importante de matériaux recyclés. Saurez-vous les trouver ?
+
+# Partie 1 (232 mots - 1'40")
 
 Clémence, tu as débarqué dans nous vies d'ados, et a apporté une bouffée de bonheur
 à papa et maman qui en avaient bien besoin, à l'aube de la crise de la quarantaine.
@@ -19,10 +23,13 @@ Tu aurais pu élever le "en même temps" en force politique, mais le créneau
 est pris maintenant, désolé.
 Les parents, donc, tu auras tout de même mis leur confiance à rude épreuve 
 avec tes campings sauvages devant le parc des princes à tout juste 16 ans 
-ou ton roadtrip en Amérique du Sud. 
+ou ton roadtrip en Amérique du Sud.
 Mais voilà, tu as cette détermination qui t'a amenée à mener à bien tous les projets entrepris,
 et le dernier en date, te faire passer la bague au doigt par la perle rare,
 notre nouveau beauf, Philippe (Auguste) !
 
-// Partie 3 sur Philippe
+# Partie 2 (obj: 200 mots, 1'30)
+// Partie 3 sur Philippe et leur couple
 
+
+# Partie 3 (obj: 200 mots, 1'30)
