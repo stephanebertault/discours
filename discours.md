@@ -52,7 +52,7 @@ Et la suite a été légend...
 
 ...dairy, legendary.
 
-_Sur Philippe et leur couple, et Lulu_
+_Sur le fromage ; sur Philippe et leur couple, et Lulu_
 
 Et comme disaient les black eyed peas dans leur chanson de bar mitzvah :
 « je crois que cet aprèm sera une pure soirée ».
