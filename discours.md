@@ -78,7 +78,7 @@ Tandis que Philippe reçoit l'appel de la piquette et s'installe entre Mercurey 
 car il cherche sa voie.
 
 Déjà le jeune couple est mis à l'épreuve de la distance, et du réseau ferroviaire en étoile.
-Mais il faut croire que c'était une belle étoile. Car ils tiennent bon.
+Mais il faut croire que c'était une bonne étoile. Car ils tiennent bon.
 
 Ils sont focus, pas comme Perrette ; ils gardent leur pot bien sur la tête.
 Bonjour Beauvau, vaches, poulets. C'est l'aventure parisienne.
