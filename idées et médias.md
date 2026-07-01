@@ -15,3 +15,7 @@
 ![](images/thierry.avif) 
 ![](images/thierry%20mariage.jpg)
 ### [⁶](#6) musique you're beautiful
+
+
+"That's what she said."
+"I'm not superstitious, but I am a little stitious."
