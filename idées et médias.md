@@ -14,7 +14,7 @@
 ### [⁵](#5) l'amour est dans le pré. Mais Thierry était déjà pris !
 ![](images/thierry.avif) 
 ![](images/thierry%20mariage.jpg)
-### [⁶](#6) musique you're beautiful
+### [⁶](#6) musique you're beautiful ou haven't met you yet
 
 
 "That's what she said."
