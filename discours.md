@@ -52,7 +52,7 @@ Et c'est comme ça, Lucien, que Philippe a rencontré ta mère.
 Et la suite a été légend... Attendez un peu...
 — Et j'espère que vous n'êtes pas intolérants au lactose, car la suite va être —
 
-## Partie 3 (obj: 200 mots, 1'30")
+## Partie 3 (~150 mots, 1')
 
 ...dairy, legendary.
 Oui, fromager ! Car Clémence reçoit l'appel de la biquette, et s'installe en Poitou.
@@ -62,9 +62,12 @@ car il cherche sa voie.
 
 Déjà le jeune couple est mis à l'épreuve de la distance, et du réseau ferroviaire en étoile.
 Mais il faut croire que c'était une belle étoile. Car ils tiennent bon.
-Ils sont focus, pas comme Perrette ; gardent leur pot bien sur la tête.
+
+Ils sont focus, pas comme Perrette ; ils gardent leur pot bien sur la tête.
 Bonjour Beauvau, vaches, poulets. C'est l'aventure parisienne.
 Et Lulu, la cerise sur le plateau de fromage.
+
+Alors on est très heureux d'être là, au mariage d'une étoile et d'un Cœur de Lion.
 
 Et comme disaient les black eyed peas dans leur chanson de bar mitzvah :
 « je crois que cet aprèm sera une pure soirée ».
