@@ -21,6 +21,7 @@ Car oui, tu as pris cette fâcheuse manie d'être douée en tout ;
 à la fois indépendante et entreprenante, mais sans jamais braquer les parents.
 Tu aurais pu élever le "en même temps" en force politique, mais le créneau
 est pris maintenant, désolé.
+
 Les parents, donc, tu auras tout de même mis leur confiance à rude épreuve 
 avec tes campings sauvages devant le parc des princes à tout juste 16 ans 
 ou ton roadtrip en Amérique du Sud[³](idées%20et%20médias.md#3).
@@ -37,15 +38,18 @@ Quand elle était jeune, elle n'avait besoin de personne,
 Elle va pour les forêts, les loups, les gratte-ciel,
 Elle va pour l'eau verte du canal du Midi et la brique rouge des Minimes.
 Elle va sur les traces d'Ernesto, mais sans motocicleta.
-Elle est transatlantique, très athlétique, ne transige pas sur l'éthique.
-Un jour, elle découvre que quand on ne met pas assez de Badoit dans le mojito,
-on peut finir par se blesser grièvement, et décide de vendre de l'eau pour sauver des vies.
 
-_Sur sa vie de jeune adulte, le boulot, La Rochelle, la rencontre_
-[⁵](idées%20et%20médias.md#5), [⁶](idées%20et%20médias.md#6)
+Elle est transatlantique, très athlétique, ne transige pas sur l'éthique.
+
+Un jour, elle découvre que quand on ne met pas assez de Badoit dans le mojito,
+on peut finir par se blesser grièvement, et décide donc de vendre de l'eau pour sauver des vies.
+
+On lui a dit que l'amour était dans le pré, mais à cause de sa myopie, elle est allée plus loin.
+À la Rochelle. Et malheureusement Thierry Olive était déjà pris, alors elle a juste gardé le nom
+pour le chat et a cherché encore. Et trouvé !
 
 Et c'est comme ça, Lucien, que Philippe a rencontré ta mère.
-Et la suite a été légend...
+Et la suite a été légend... Attendez un peu...
 — Et j'espère que vous n'êtes pas intolérants au lactose, car la suite va être —
 
 ## Partie 3 (obj: 200 mots, 1'30")
