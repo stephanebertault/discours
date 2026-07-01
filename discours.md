@@ -45,8 +45,8 @@ Un jour, elle découvre que quand on ne met pas assez de Badoit dans le mojito,
 on peut finir par se blesser grièvement, et décide donc de vendre de l'eau pour sauver des vies.
 
 On lui a dit que l'amour était dans le pré, mais à cause de sa myopie, elle est allée plus loin.
-À la Rochelle. Et malheureusement Thierry Olive était déjà pris, alors elle a juste gardé le nom
-pour le chat et a cherché encore. Et trouvé !
+À la Rochelle. Et malheureusement Thierry Olive était déjà pris[³](idées%20et%20médias.md#6),
+alors elle a juste gardé le nom pour le chat et a cherché encore. Et trouvé !
 
 Et c'est comme ça, Lucien, que Philippe a rencontré ta mère.
 Et la suite a été légend... Attendez un peu...
