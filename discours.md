@@ -1,4 +1,23 @@
-## Intro (53 mots - 20")
+## Intro
+
+Je crois que Clem nous a programmé cinq minutes chrono. 
+
+Alors, on vous propose, après cette intro, des prolégomènes, pour être tous au même niveau.
+Trente secondes.
+
+Puis parties une et deux, une trente chacune. 
+
+Et partie 3, conclusion et envoi en une minute parce qu'il faut
+mettre du rythme. Et ça fera... oui, quatre trente pour les matheux.
+
+Le reste ? Ce sera pour vos applaudissements nourris. Parce qu'on se voyait déjà adulés et riches
+Signant nos photos aux admirateurs qui se bousculaient.
+Allez, magnéto Serge.
+
+(musique 24h Chrono)
+
+## Prolégomènes (53 mots - 20")
+The following takes place, between 4:45pm and 4:50pm
 
 En 2023, pour tes 30 ans, nous étions pionniers dans le discours augmenté par IA.
 Maintenant que c'est devenu has-been, nous sommes à nouveau en pointe en garantissant
@@ -19,8 +38,6 @@ deux prototypes.
 Car oui, tu as pris cette fâcheuse manie d'être douée en tout ;
 à la fois intello de la classe, mais toujours entourée de copines ;
 à la fois indépendante et entreprenante, mais sans jamais braquer les parents.
-Tu aurais pu élever le "en même temps" en force politique, mais le créneau
-est pris maintenant, désolé.
 
 Les parents, donc, tu auras tout de même mis leur confiance à rude épreuve 
 avec tes campings sauvages devant le parc des princes à tout juste 16 ans 
