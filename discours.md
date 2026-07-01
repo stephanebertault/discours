@@ -32,7 +32,7 @@ notre nouveau beauf, Philippe !
 
 (transition musique single ladies put a ring on it)
 
-## Partie 2 (obj: 200 mots, 1'30")
+## Partie 2 (170 mots, 1'15")
 
 Quand elle était jeune, elle n'avait besoin de personne,
 Elle va pour les forêts, les loups, les gratte-ciel,
