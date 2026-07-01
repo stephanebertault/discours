@@ -27,7 +27,7 @@ avec tes campings sauvages devant le parc des princes à tout juste 16 ans
 ou ton roadtrip en Amérique du Sud[³](idées%20et%20médias.md#3).
 Mais voilà, tu as cette détermination qui t'a permis de mener à bien tous 
 tes projets (dans les études, dans le boulot, dans le milieu associatif...),
-et le dernier en date, te faire passer la bague au doigt[⁴](idées%20et%20médias.md#4) par la perle rare,
+et le dernier en date, te faire passer la bague au doigt par la perle rare,
 notre nouveau beauf, Philippe !
 
 (transition musique single ladies put a ring on it)
@@ -55,8 +55,16 @@ Et la suite a été légend... Attendez un peu...
 ## Partie 3 (obj: 200 mots, 1'30")
 
 ...dairy, legendary.
+Oui, fromager ! Car Clémence reçoit l'appel de la biquette, et s'installe en Poitou.
 
-_Sur le fromage ; sur Philippe et leur couple, et Lulu_
+Tandis que Philippe reçoit l'appel de la piquette et s'installe entre Mercurey et Beaujolais,
+car il cherche sa voie.
+
+Déjà le jeune couple est mis à l'épreuve de la distance, et du réseau ferroviaire en étoile.
+Mais il faut croire que c'était une belle étoile. Car ils tiennent bon.
+Ils sont focus, pas comme Perrette ; gardent leur pot bien sur la tête.
+Bonjour Beauvau, vaches, poulets. C'est l'aventure parisienne.
+Et Lulu, la cerise sur le plateau de fromage.
 
 Et comme disaient les black eyed peas dans leur chanson de bar mitzvah :
 « je crois que cet aprèm sera une pure soirée ».
