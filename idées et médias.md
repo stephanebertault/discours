@@ -22,3 +22,11 @@
 
 "That's what she said."
 "I'm not superstitious, but I am a little stitious."
+
+1. 24h chrono intro
+2. 24h chrono countdown
+3. circle of life
+4. put a ring on it
+5. you're beautiful 
+6. HIMYM
+7. i gotta feeling
