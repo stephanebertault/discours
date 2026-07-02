@@ -10,8 +10,8 @@ Puis parties une et deux, une trente chacune.
 Et partie 3, conclusion et envoi en une minute parce qu'il faut
 mettre du rythme. Et ça fera... oui, quatre trente pour les matheux.
 
-Le reste ? Ce sera pour vos applaudissements nourris. Parce qu'on se voyait déjà adulés et riches
-Signant nos photos aux admirateurs qui se bousculaient.
+Le reste ? Ce sera pour vos applaudissements nourris. Parce qu'**_on se voyait déjà adulés et riches
+Signant nos photos aux admirateurs qui se bousculaient._**
 Allez, magnéto Serge.
 
 (musique 24h Chrono)
@@ -22,7 +22,7 @@ The following takes place, between 4:45pm and 4:50pm
 En 2023, pour tes 30 ans, nous étions pionniers dans le discours augmenté par IA.
 Maintenant que c'est devenu trop vu, nous sommes à nouveau en pointe en garantissant
 un discours 100% humain. Et comme nous faisons aussi dans l'éco-conscient, nous
-y avons inclus une part importante de matériaux recyclés. Saurez-vous les trouver ?
+y avons inclus une part importante de matériaux recyclés. À vous de les retrouver.
 
 ## Partie 1 (232 mots - 1'40")
 
@@ -73,10 +73,11 @@ On lui a dit que l'amour était dans le pré, mais à cause de sa myopie, elle e
 alors elle a juste gardé le nom pour le chat et a cherché encore. Et trouvé !
 
 Et c'est comme ça, Lucien, que Philippe a rencontré ta mère.
-Et la suite a été légend... Attendez un peu...
-— Et j'espère que vous n'êtes pas intolérants au lactose, car la suite va être —
 
 (crédit HIMYM)
+
+Et la suite a été légend... Attendez un peu...
+— Et j'espère que vous n'êtes pas intolérants au lactose, car la suite va être —
 
 ## Partie 3 (~150 mots, 1')
 
@@ -87,13 +88,14 @@ Tandis que Philippe reçoit l'appel de la piquette et s'installe entre Mercurey 
 car il cherche encore sa voie.
 
 Déjà le jeune couple est mis à l'épreuve de la distance, et du réseau ferroviaire en étoile.
-Mais il faut croire que c'était une bonne étoile. Car ils tiennent bon.
+Alors, je ne suis pas superstitieux, juste un petit peu stitieux,
+mais il faut croire que c'était une bonne étoile. Car ils tiennent bon.
 
 Ils sont focus, pas comme Perrette ; ils gardent leur pot bien sur la tête.
 Bonjour Beauvau, vaches, poulets. C'est l'aventure parisienne.
 Et Lulu, la cerise sur le plateau de fromage.
 
-Alors on est très heureux d'être là, au mariage d'une étoile et d'un Cœur de Lion.
+Et ainsi aujourd'hui, on est très heureux d'être ensemble, au mariage d'une étoile et d'un Cœur de Lion.
 
 Et comme disaient les black eyed peas dans leur chanson de bar mitzvah :
 « je crois que cet aprèm sera une pure soirée ».
