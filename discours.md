@@ -98,7 +98,7 @@ Et Lulu, la cerise sur le plateau de fromage.
 Et ainsi aujourd'hui, on est très heureux d'être ensemble, au mariage d'une étoile et d'un Cœur de Lion.
 
 Et comme disaient les black eyed peas dans leur chanson pour bar mitzvah :
-« je crois que cet aprèm sera une pure soirée ».
+**_« je sens que cet aprèm va être une pure soirée »_**.
 
 Que la force of July soit avec vous !
 
