@@ -35,9 +35,9 @@ Clémence, Clébou, poussin, poulette...
 Elle a débarqué dans nous vies d'ados, et a apporté une bouffée de bonheur
 à papa et maman qui en avaient bien besoin, à l'aube de la crise de la quarantaine.
 On a très vite été fascinés, non tant par ses petites bouclettes blondes
-(car dans la famille le temps n'y fait rien à l'affaire quand on est blond on est blond)
+(car dans la famille **_le temps n'y fait rien à l'affaire quand on est blond on est blond_**)
 
-mais surtout par ses capacités cognitives à l'évidence peu ordinaires[²](idées%20et%20médias.md#2). Même si
+Mais surtout par ses capacités cognitives à l'évidence peu ordinaires. Même si
 malgré tous nos efforts pour que son premier mot soit géranium, elle s'est contentée
 de dire 'maman'**_... boring..._** se posant ainsi comme _LA Bonne_ petite fille après les
 deux premières crepes.
@@ -66,7 +66,7 @@ _**Elle va pour les forêts, les loups, les gratte-ciel,**_
 
 Elle va sur les traces d'Ernesto, mais sans motocicleta.
 
-Elle est transatlantique, _**elle est très athlétique, ne transige pas sur l'éthique**_.
+Clémence, elle est transatlantique, _**elle est très athlétique, ne transige pas sur l'éthique**_.
 
 Un jour, elle découvre que quand on ne met pas assez de Badoit dans le mojito,
 on peut finir par se blesser grièvement, et décide donc de vendre de l'eau pour sauver des vies.
@@ -74,8 +74,8 @@ on peut finir par se blesser grièvement, et décide donc de vendre de l'eau pou
 (musique 5 you're beautiful)
 
 On lui a dit que l'amour était dans le pré, mais à cause de sa myopie, elle est allée plus loin.
-À la Rochelle. Et malheureusement Thierry Olive était déjà pris[⁵](idées%20et%20médias.md#5),
-alors elle a juste gardé le nom pour le chat et a cherché encore. Et trouvé !
+À la Rochelle. Et malheureusement Thierry Olive (saison 7) était déjà pris,
+alors elle a juste gardé le nom pour le chat et a cherché l'amour encore. Et l'a trouvé !
 
 Et c'est comme ça, Lucien, que Philippe a rencontré ta mère.
 
@@ -93,6 +93,7 @@ Tandis que Philippe reçoit l'appel de la piquette et s'installe entre Mercurey 
 car il cherche encore sa voie.
 
 Déjà le jeune couple est mis à l'épreuve de la distance, et du réseau ferroviaire en étoile.
+
 Alors, je ne suis pas superstitieux, juste un petit peu stitieux,
 mais il faut croire que c'était une bonne étoile. Car ils tiennent bon.
 
@@ -100,11 +101,12 @@ Ils sont focus, pas comme Perrette ; ils gardent leur pot bien sur la tête.
 Bonjour Beauvau, vaches, poulets. C'est l'aventure parisienne.
 Et Lulu, la cerise sur le plateau de fromage.
 
-Et ainsi aujourd'hui, on est très heureux d'être ensemble, au mariage d'une étoile et d'un Cœur de Lion.
+Et ainsi aujourd'hui, on vous aime et on est très heureux d'être autour de vous,
+au mariage d'une étoile et d'un Cœur de Lion.
 
 Et comme disaient les black eyed peas dans leur chanson pour bar mitzvah :
 **_« je sens que cet aprèm va être une pure soirée »_**.
 
 Que la force of July soit avec vous !
 
-(fin, i gotta feeling)
+(musique 7 -, i gotta feeling)
